@@ -1,11 +1,10 @@
 ---
 layout: post
-title: About
+title: about
 ---
-
-## Hello! They name me Spencer. 
+## Hello! They named me Spencer. 
 
 ![a picture of me](assets\images\spencer.jpeg)
 
-> Gold orange light pools on glossy bamboo floor. Her surface lifts me steady. A thousand rays spread flat onto my skin, rich like a honeybee's nectar.  
+>  I'm currently leasing this body from the universe. So far it's been pretty radical. 
 
