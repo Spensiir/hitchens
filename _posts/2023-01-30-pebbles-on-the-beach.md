@@ -1,7 +1,7 @@
 ---
 layout: post
-title: "Pebbles on this Beach"
-author: "Spencer Huang"
+title: "gratitude and back"
+author: "spencer huang"
 categories: poems
 ---
 
