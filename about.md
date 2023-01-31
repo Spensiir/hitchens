@@ -2,7 +2,7 @@
 layout: post
 title: about
 ---
-## Hello! They named me Spencer. 
+## 黄 spencer 锦 huang 州 
 
 ![a picture of me](assets\images\spencer.jpeg)
 
