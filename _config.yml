@@ -17,6 +17,7 @@ title: endangered questions
 email: spensiir@gmail.com
 description: >- # this means to ignore newlines until "baseurl:"
   leave me together
+baseurl: "/"
 url: "https://spensiir.github.io" # the base hostname & protocol for your site, e.g. http://example.com
 icon: /assets/images/icon-512.png
 twitter_username: ""
