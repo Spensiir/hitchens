@@ -9,11 +9,11 @@ categories: entry
 
 when i first arrived, i quickly noticed a sudden lack of fixation on time. it had been a long time since i felt so engaged with my company.  
 
-it was tough at times.  
+it was tough at times.    
 
-i was always on someone else's property. my temporary space for safe sleep, leisure, and food preparation rested upon the sway of another person's purchasing power. i was continuously protected by the generosity of another individual, by the half-spoken agreement that my friends would provide my basic living needs for a set amount of time. i had chosen to trust in their ability and willingness to honor my needs.   
+i was always on someone else's property. my temporary space for safe sleep, leisure, and food preparation rested upon the sway of another person's purchasing power. i was continuously protected by the generosity of another individual, by the half-spoken agreement that my friends would provide my basic living needs for a set amount of time. i had chosen to trust in their ability and willingness to honor my needs.  
 
-it was tough because i often felt anxious. my temporary safety banked on the goodwill of another person. i relinquished control. all i could do is ask and trust. the anxiety was less about their ability to provide my needs, and more about the potential unspoken resentment that might build up each time i ask for something they'd rather not provide but feel obliged to under the vague social laws of hosting. an anxiety that every question layers further weight on the camel's back until one final request leads to an eruption of conflict and violence and shame.   
+it was tough because i often felt anxious. my temporary safety banked on the goodwill of another person. i relinquished control. all i could do is ask and trust. the anxiety was less about their ability to provide my needs, and more about the potential unspoken resentment that might build up each time i ask for something they'd rather not provide but felt obliged to under the vague social laws of hosting. an anxiety that every question layers further weight on the camel's back until one final request leads to an eruption of conflict and violence and shame.   
 
 i let myself feel the anxiety. i related compassionately to that feeling. yes, i am feeling that. a spiky lump in my throat and a flat pressure against my chest. yes, this feeling is painful; unpleasant at the very least. yes, i have a part of me that feels afraid. yes, there is a future where such an outcome is real. yes, that would be really painful to experience.  
 
