@@ -5,7 +5,7 @@ author: "spencer huang"
 categories: entry
 ---
 
-i recently went on a trip. i flew to san francisco to stay with a pair of close friends. then i drove to palo alto to see one of my oldest childhood friends. afterwards, i flew to san bernardino to start a camping roadtrip journey with another pair of close friends.  
+  i recently went on a trip. i flew to san francisco to stay with a pair of close friends. then i drove to palo alto to see one of my oldest childhood friends. afterwards, i flew to san bernardino to start a camping roadtrip journey with another pair of close friends.  
 
 when i first arrived, i quickly noticed a sudden lack of fixation on time. it had been a long time since i felt so engaged with my company.  
 
@@ -23,7 +23,7 @@ the soulful conversations. the dancing. the walking. the hiking. the beauty of n
 
 the sense of community.   
 
-it was easy to act on intuition. i had capable loving logical strong humans companions to catch me in case something goes wrong. i would be there for them in the same way. there was social insurance. the most dynamic and reassuring safety net imagineable.   
+it was easy to act on intuition. i had capable loving logical strong human companions to catch me in case something goes wrong. i would be there for them in the same way. there was social insurance. the most dynamic and reassuring safety net imagineable.   
 
 and now im back. my parents are out on a trip. i am home alone with my cat. my community is suddenly fraught and spread thin like a worn sweater stretched so that it covered an entire soccer field. the gaps feel massive and the net more like an unexpected strand here and there.   
 
