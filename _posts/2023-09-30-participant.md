@@ -5,7 +5,8 @@ author: "spencer huang"
 categories: entries
 ---
 
-life punches us square in the face before we even get in the arena. except we’re always in an arena and the floor is about shatter for us to fall through - into the next. 
+
+life punches us square in the face before we even get in the arena. except we’re always in an arena and the floor is about to shatter for us to fall through - into the next. 
 
 for a while now i’ve been trying to opt out through meditation. finding somewhere quiet where no one can disturb you. somewhere that feels safe from the world. then, sit back and just notice. just notice. just notice. no action. just observation. 
 
