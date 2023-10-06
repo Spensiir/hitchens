@@ -19,10 +19,10 @@ Since we cannot sift through all data, we can only be selective about our attent
 
 I have brainstormed some strategies that seem to maximize our chances of approaching a more reliable truth that work within the biological limits of a human lifetime. 
 
-one is to rely on our irrational desires like a compass to direct our attention
-two is direct experience with the world
-three is intaking high quality indirect interpretations of the world
-four is maintaining an organized repository of current state of knowledge and to update such frequently
-five is to journal a lot
-six is to ask clever people good questions   
-seven is to accept the pusuit will never be perfect or complete
+1. is relying on our irrational desires like a compass to direct our attention
+2. is direct experience with the world
+3. is intaking high quality indirect interpretations of the world
+4. is maintaining an organized repository of current state of knowledge and to update such frequently
+5. is to journal a lot
+6. is to ask clever people good questions   
+7. is to accept the pusuit will never be perfect or complete
