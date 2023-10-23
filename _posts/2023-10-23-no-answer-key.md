@@ -14,6 +14,6 @@ No matter what decisions they make, they will seek food, relieve themselves, des
 
 So why do anything if the core process never changes? 
 
-Because obligation, expectation, desire, boredom, fear, and ambition. Because we either have enough and we want something more or different or we don’t have enough and we want enough. 
+Because obligation, expectation, desire, boredom, fear, curiosity, and ambition. Because we either have enough and we want something more or different or we don’t have enough and we want enough. 
 
 Whatever position we feel ourselves in, no action will cause major change. Not even death. 
