@@ -10,6 +10,7 @@ prickly
 turn away
 i don’t want to stay
 ~
+
 Discomfort. A creature that stings and bites and screeches. We are born with a gate specifically made for his whims. He comes and goes as often as he likes. 
 
 Sometimes it stays for a full hour and other times for the majority of a day. In the darkest times he makes a nest of my body. 
