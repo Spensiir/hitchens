@@ -40,19 +40,25 @@ i too have feelings and wishes and needs
 im sorry i got lost in my own world
 
 i wasn't taught to coexist with 
+
 wait who are you again ?
 
 i'm not sure derek, i truly am not
+
 i just know i have a body 
 
 that senses this world 
+
 and can play in it too
 
 i guess if i take a step back,
+
 i dont really know who i am either
 
-i just think and think and weave stories
-i feel things but not quite like you do
+i think and weave stories
 
-i fear and worry and i reminisce
-i can plan and predict and hope and dream
+i feel but not quite like you do
+
+i worry and reminisce
+
+i plan and hope and dream
