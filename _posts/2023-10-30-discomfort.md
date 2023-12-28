@@ -27,7 +27,7 @@ I do feel like I have the power to stymie acts of distraction to make space for 
 
 It’s in this segment of the decision chain where I, time and time again, come across the same crossroads. Looking discomfort straight in his eyes feels like it demands too much from my attention - energy that could be directed towards more important things like surviving longer in the future. 
 
-There is no halfhearted listening to pain. To hear pain is to allow the counseling session to influence my next decision. It is breaking from the chain of bubbles I had grown to find safety in. 
+There is no halfhearted listening to pain. To hear pain is to allow the counseling session to influence my next decision. It is breaking from the chain of bubbles I have learned to find safety in. 
 
 Deciding to see discomfort throws a wrench in the whole operation. The attention must be calm and clean and warm and strong. It requires valuable resources. Resources that other parts are desperately hoarding to bolster their story of security.
 
