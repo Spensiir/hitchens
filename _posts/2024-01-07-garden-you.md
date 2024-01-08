@@ -9,7 +9,7 @@ I’m reading Alan Watt’s *The Wisdom of Insecurity*, where he dissects the mo
 
 I feel deep resonance with his words and also some dissonance. I called out of work this morning and I immediately felt a sharp uptick in feelings of both guilt and relief. I felt drained of my sense of certainty yet fulfilled in my desire for freedom. Later, as I watered my houseplants and folded laundry, I felt my sense of restlessness recede while my desire to create grew. Now, as I write I think to myself -
 
-It feels appropriate to see myself like a garden full of diverse flora. As I tend to one organism, others desire more attention. Often I can nourish many creatures at once, like playing sports with friends might satisfy my need for exhilaration, fitness, and connection. Some creatures grow on opposite corners of the garden, making it close to impossible to help simultaneously, like rest and activity. 
+It feels appropriate to see myself like a garden full of diverse flora. As I tend to one organism, others desire more attention. Often I can nourish many creatures at once, like playing sports with friends might satisfy my need for exhilaration, fitness, and connection. However, some creatures grow on opposite corners of the garden, making it close to impossible to help simultaneously, like rest and activity. 
 
 I think my sense of dissonance stems from believing that our brain's tendency to use memories for prediction, creating Watt’s “lesser reality,” is actually one of its greatest contributions to our body. Since the brain evolved alongside the diversification of our gardens it is designed to create flows of action that best satisfy the many critters we house. 
 
