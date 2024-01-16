@@ -1,0 +1,36 @@
+---
+layout: post
+title: "pathetic and perfect"
+author: "spencer huang"
+categories: entry
+---
+
+I played smite for at least five hours today. I also shoveled some snow. And I helped my parent prepare dinner. I heated up some leftovers for brunch. I didn't want to leave the house. It snowed so I used that as an excuse to cancel my two tutoring sessions I had at night. In all truth, I just didn't want to go. I didn't want to meet a new student in a new house in the presence of their parents. It probably would have been fine but I didn't want to risk it being exhausting and awkward. And I didn't really feel prepared to intake a new student. I felt worried the parents would observe me in our first session and decide I was conning them. I was never trained to be a tutor. Yes, I've tutored several students at this point and they improved in their scores, but I can't possibly be the best. I don't have a guide. Someone to give me feedback and guide me towards success. 
+
+I've never had that. An adult guide that I respected and trusted. Nearly everything I do I feel like I do on my own. And that sucks. 
+
+I have a huge issue with loneliness. I never had caretakers that satisfied my need for attention. It actually went the opposite direction. Both my parents were violent, particularly verbally violent but also physically. There was a lot of intimidation. The caretakers I found myself reliant on were unpredictable yet reliably eventually terrifying. My biology wanted to trust them as my bastions for safety. Partially because who else would feed, clothe, and shelter me? I was alone in this damn country aside from my two biological parents and my equally abused and neglected sister (who readily redistributed her pain onto me). 
+
+I want to move on so badly. In fact, I tried moving on as the tragedy was happening. As my biological mother screamed at me at the top of her lungs I tried to skip to the future. I tried to summon something that would save me from the extreme pain I was experiencing. In desperation, I found dissociation. In fear that could not be contained in such a young body, I found rage enough to murder. I imagined killing my own parent. Instead of gradually developing my strengths and weathering my weakness, I was submerged in fire and abandoned to the cold. 
+
+Oh how they would turn on me like a snake might strike in a jungle. I thought I was safe in my own house or at least I tried so desperately to delude myself so I could some semblance of stable upbringing. But time and time and time again they would rip my heart apart with insults dripping with venom. My own mother would call me a useless idiot that could never compare to any other child she could ever imagine. My own father would threaten to beat me to death. My own father would shatter my devices against the wall as I stood inches away. My own mother would throw household objects at me.
+
+How could I move on? How could I when no one saw what happened to me? No one but me and maybe my sister who has bullied me just as severly. How can I handle the world's trials when my own family tore me apart when I was only just developing. 
+
+I want to move on I want to grow into an adult. I want to be in the moment and have new joyful experiences. I want to have my own space. I want to build my own life. But I cannot until someone sees all the horror I went through alone and tells me it's over. Because it's not over yet. They are still alive in my memories. Not just in my mind but also in my body. There is so much fear and hatred and shame lodged in my body. I am too bruised to face it alone and the only help I can find is becoming unaffordable. 
+
+I want to ask for help but who can I trust? My first relationships ended up being so violent and terrifying. How can I trust anyone else to care for me ever again? 
+
+I don't know. I Don't Know is the answer. I don't have to know. At least I wrote this. At least I wrote this and the world can see. Maybe someone will see and will know how to help me. At least I am trying right? There just so much I don't know maybe because I was spending every last ounce of strength to survive the horror story that was my childhood. 
+
+So yes, I appear to be pathetic I'm sure. I could not have done better for myself. I could not have worked harder than I did to be the person I am today. It's time for me to rest. It's time for me to embrace being pathetic. Now that I finally have enough strength and consciousness and confidence to fend for myself if push comes to shove like it did when I was seven. Of fucking course I get to be pathetic. I GET to make mistakes and not get shamed into the ground. I get to say no and let people down without getting abandoned. I have given everything. I am going to take now. And I will take until I am satisfied and you can leave if you don't want to be around. It's not like you were around when I needed help anyways. It was me against the world and it's still me against the world. 
+
+I will grow I will grow I will fucking grow at my own fucking pace. I will protect every single piece of me that is left even the ones that are seared from being in overdrive mode to protect us from our abusive parents. I will nurture myself. I didn't want this role. But I will do it. Because the fate was cruel to me. And I will have my revenge on the world by nurturing myself into a person that can be present with life. 
+
+Or maybe nothing conspired to destroy my early life. Maybe fate is the ocean and my life is a droplet, caught in one of it's many massive currents. Maybe my parents are just two other droplets, dragged along by the trillions of droplets that surround us. And it's all one giant swirl of energy and matter. And if you zoom in really really really close you can see me. A cascading explosion of red and blue and green. Rage, sorrow, and disgust. Fighting against the current to survive, only to fail. Oh, I'm still alive; even though I let go. I never knew what was going to come next. At least when I let go I can see what's going on around me. What happened to us was terrible. So terrible that if there isn't a reason than it would seem unbearable. But the truth is that nothing that ever happens has a divine reason. So what is keeping me trapped in the past. 
+
+It's fear that something so terrible could happen again. It could. It might. It might not. All we can do is wait and see. But I don't want to just wait and see. I want to do the things I want to do. Okay! Go for it. But I NEED HELP. And they never helped me so I need EXTRA help and just any old help really really wise help from people who really really really care about me and those people still aren't here! So go find them! Where? Meditation retreats maybe? 
+
+But people are scary! Didn't you hear what I said earlier? I can't seem to trust people enough to help me even if they were around. It's such a terrible fucking bind I'm really frustrated by it. But here we find the next step. You did enough for today. Here we find the next step. 
+
+Where can we find people who can help us? What do they look like? And how do we prepare ourselves to be open their help?
