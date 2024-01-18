@@ -5,7 +5,7 @@ author: "spencer huang"
 categories: entry
 ---
 
-birds lost in a cavern
-i let out little cries
+feathers flutter in a cavern
 faint memory of descent
-grateful to see the light
+just grateful to see the light
+i let out little cries
