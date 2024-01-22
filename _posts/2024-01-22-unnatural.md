@@ -25,7 +25,7 @@ our biology is stuttering. our minds are stretching. our technology is sprinting
 
 and i feel so lonely. home. underemployed and confused. do i want just another job? where i feel exploited but occupied and enveloped in some sense of community. it would give me money. 
 
-oh money. what a word. what an idea. what we give up for feeling like we have enough money and what lose in pursuit.
+oh money. what a word. what an idea. how badly we yearn feel financially safe and what we lose in pursuit.
 
 my parents didn't model behavior that valued relationships. i think it really affected me. even though the environment they raised me in lacked emotional nourishment it was never lacking in commitment to physical health. i think what my family was missing was community. for a long time i could not even begin to see the impact lack of community can have on family health and subsequently, a child's health. 
 
