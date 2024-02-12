@@ -1,8 +1,8 @@
 ---
-layout:post
-title:"awareness"
-author:"spencer"
-category:poems
+layout: post
+title: "awareness"
+author: spencer
+category: poems
 ---
 
 awareness awareness
