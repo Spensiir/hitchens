@@ -16,6 +16,6 @@ and then the body gets hungry and the mind gets existential. the body gets cold 
 
 i thought all i needed to do was observe. i thought i would never need to take action again. to take action would be to risk something. it would mean giving up energy. to engage with the vortex of society and individual needs - it terrifies me. 
 
-maybe i needed to take this slower, quieter detour inward - because i can see the cut of me that shivers better than ever. some time ago i pulled off the bandages covering my mind’s eye and blinked.
+maybe i needed to take this slow and quiet detour because now i can see the cut that shivers better. i pull off the bandages covering my mind’s eye and blink.
 
-the ground is cracking more and more like it always does. im about to fall through. this time i hope to participate.
+the ground is cracking more and more like it always does. im about to fall through.
