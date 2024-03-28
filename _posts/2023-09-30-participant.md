@@ -12,7 +12,7 @@ for a while now i’ve been trying to opt out through meditation. finding somewh
 
 i took this mentality too far because it felt so good. it made me feel like i didn’t have to engage with life ever again as long as i could find a place to meditate. it made me feel safe because it reduced my needs down to nearly nothing - merely a place to sit in peace. there was something so so so alluring about that fantasy. divorcing with ego so much that i feel content spending the rest of my minutes learning of the breath. 
 
-and then the body gets hungry and the mind gets existential. the body gets cold and thirsty and sleepy. the mind wants security and meaning and a sense of growth. eventually - the knuckles of biology start knocking and i’m ripped apart.
+and then the body gets hungry and the mind gets existential. the body gets cold and thirsty and sleepy. the mind wants security and meaning and a sense of growth. eventually, the knuckles of biology start knocking - hard.
 
 i thought all i needed to do was observe. i thought i would never need to take action again. to take action would be to risk something. it would mean giving up energy. to engage with the vortex of society and individual needs - it terrifies me. 
 
