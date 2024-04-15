@@ -4,5 +4,5 @@ title: about
 ---
 ## 黄 锦 州 
 ![a picture of me](assets\images\spencer2.jpg)
->  I'm currently leasing this body from the universe. So far it's been pretty radical. We also have a <a href="https://www.youtube.com/channel/UCX47DuX1PfNaLGWleFEHtLw" target="_blank">youtube channel</a> custom made for you.
+> Quick, read my posts before they float away! Afterwards, <a href="https://rcp5xukm9e4.typeform.com/to/bUpenbTn" target="_blank"> comments</a>  of any kind would be much appreciated. 
 ### spencer j. huang  
