@@ -5,7 +5,7 @@ author: spencer
 category: entry
 ---
 
-he feels like a microscope trying to see a mountain range. this might not have bothered him, but his body gets hungry and cold and scared. he wants to know where food and shelter is, and where predators are not. he wants to see the entire mountain range. 
+  he feels like a microscope trying to see a mountain range. this might not have bothered him, but his body gets hungry and cold and scared. he wants to know where food and shelter is, and where predators are not. he wants to see the entire mountain range. 
 
 luckily, he has a memory. he even has a mind to piece together memories into patterns to try to predict the future. the mind works hard to provide crucial information to the creature. 
 
