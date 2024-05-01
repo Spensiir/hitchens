@@ -13,4 +13,4 @@ one day the mind realizes that no matter how hard it tries, it cannot guarantee 
 
 it remembers that he is a microscope in a mountain range, trying to see. he sees sorrow and he sees pain. he sees joy and he sees fear. he sees beauty in it all. 
 
-he doesn't want it to end. he cannot stop it from ending. he tries to enjoy the moment as deeply and as often as possible. but worry creeps in. he feels his body needs things. he must take action to get those things. with every action there is an equal loss of awareness. now, he sees confusion. he feels lost and overwhelmed. 
+he doesn't want it to end. he cannot stop it from ending. he tries to enjoy the moment as deeply and as often as possible. but worry creeps in. he feels his body needs things. he must take action to get those things. with every action there is an equal loss of awareness. now, he sees confusion.  
