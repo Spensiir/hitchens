@@ -1,8 +1,8 @@
 ---
-layout:"post"
-title:"beauty, power, and pleasure"
-author:"spencer"
-category:"poems"
+layout: post
+title: beauty, power, and pleasure
+author: spencer
+category: poems
 ---
 
 beauty, power, and pleasure  
