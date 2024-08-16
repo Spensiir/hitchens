@@ -5,6 +5,6 @@ author: "spencer huang"
 categories: poems
 ---
 
-Gold orange light pools on glossy bamboo floor.  
-A thousand rays spread flat onto my skin,   
-rich like a honeybee's nectar. 
+Gold light pools on a bamboo floor  
+A hundred rays drape over my skin,   
+rich like a bee's nectar
