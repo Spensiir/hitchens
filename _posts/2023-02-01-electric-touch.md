@@ -5,12 +5,11 @@ author: 'spencer huang'
 category: poems
 ---
 
-Your hand touching mine  
-suddenly spawns  
+Your hand brushing mine  
+spawns  
 a tidal wave of sparks.   
 It crashes over my body  
 and seeps into my flesh.  
-In the wake I feel  
-a dispersion of gentle heat.  
-My heartbeat quickens while  
-my body floats like a cloud.  
+In its wake I feel heat 
+My heart quickens,
+my body floats
