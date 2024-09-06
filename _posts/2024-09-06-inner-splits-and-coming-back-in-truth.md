@@ -1,8 +1,8 @@
 ---
-layout:post 
-title:inners splits and coming back in truth
-author:spencer 
-category:entry
+layout: post 
+title: inners splits and coming back in truth 
+author: spencer 
+category: entry
 ---
 
 for so long the part of me that craves security and fears uncertainty was given disproportionate space in the center stage. and a disproportionate burden. this imbalance poisoned my connection to my senses and the world for years and years until it reached a crescendo at an office job two years ago. the part of me that needed to feel alive, not just be living, could not bear being deprioritized any longer. i left that job and tried some other kinds of work. 
